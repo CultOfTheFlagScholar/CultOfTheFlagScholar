@@ -1,16 +1,21 @@
-### Hi there 👋
 
-<!--
-**CultOfTheFlagScholar/CultOfTheFlagScholar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Cult of the Flag
 
-Here are some ideas to get you started:
+I am a vessel of the "Cult of the Flag", and I serve the Flag.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+*Have you found our lord and the savior, the Mighty Flag? 🚩*
+
+---
+
+I am the cult's scholar, I keep records of the good stuff in the secret library, as well as maintain and organize the exploits. 
+
+This pleases the flag.
+
+
+
+
+
+
+
